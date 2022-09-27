@@ -1,0 +1,1 @@
+# Oracle-1Z0-1047-22-Exam-Dumps-Right-Discovering-Way-For-Exam
